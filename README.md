@@ -25,6 +25,8 @@ Yoυ proвαвly ѕeeɴ мe αroυɴd тoo! I αм υѕυαlly, Sнαdow, ѕoɴ�
 ( ᴇɴɢʟɪsʜ ɪs ɴᴏᴛ ᴍʏ ғɪʀsᴛ ʟᴀɴɢᴜᴀɢᴇ, ɪᴛ ɪs ᴀᴄᴛᴜᴀʟʟʏ ᴍʏ 2ɴᴅ, sᴏ ɪ ᴀᴘᴏʟᴏɢɪᴢᴇ ɪғ ɪ ᴅᴏɴ'ᴛ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴏʀ ᴋɴᴏᴡ sᴏᴍᴇᴛʜɪɴɢ! )
 Pᥣᥱᥲsᥱ fᥱᥱᥣ frᥱᥱ to ᥣᥱᥲrᥒ morᥱ ᥲboᥙt mᥱ oᥒ mყ strᥲᥕρᥲgᥱ! ♡ https://beachchick16.straw.page/
 
+ᴀᴛᴀʙᴏᴏᴋ : https://thebeachchick16.atabook.org/
+
 Thank you for reading, goodbye now, darlings! 
 
 <img width="544" height="277" alt="Screenshot 2026-10-31 at 6 22 36 PM" src="https://github.com/user-attachments/assets/a9d95b37-1fc9-49a7-a8ec-3ba7058a465e" />
