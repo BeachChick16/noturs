@@ -1,7 +1,7 @@
 <div align="center"><img width="544" height="277" alt="Screenshot 2026-10-31 at 6 22 42 PM" src="https://github.com/user-attachments/assets/2791bb48-2447-4add-a514-350b0bf4fe7e" />
 
 
-Hoᥕdყ hoᥕdყ, mყ ᥣovᥱᥣιᥱs!!! Wᥱᥣᥴomᥱ to mყ Gιthᥙb ᥲᥒd/or Rᥱᥲdmᥱ!! I ᥲm Chᥙᥙ, I go bყ Hᥲᥣo o Roᥙgᥱ. I do ᥒot mιᥒd ᥲᥒყ tყρᥱ of ρroᥒoᥙᥒs ყoᥙ ᥙsᥱ oᥒ mᥱ, thᥲt's ᥕhყ I hᥲvᥱ "Aᥒყ/Aᥣᥣ" oᥒ mყ bιo! 
+Hoᥕdყ hoᥕdყ, mყ ᥣovᥱᥣιᥱs!!! Wᥱᥣᥴomᥱ to mყ Gιthᥙb ᥲᥒd/or Rᥱᥲdmᥱ!! I ᥲm Chᥙᥙ, I may also go bყ Hᥲᥣo o Roᥙgᥱ. I do ᥒot mιᥒd ᥲᥒყ tყρᥱ of ρroᥒoᥙᥒs ყoᥙ ᥙsᥱ oᥒ mᥱ, thᥲt's ᥕhყ I hᥲvᥱ "Aᥒყ/Aᥣᥣ" oᥒ mყ bιo! 
 
 <img width="239" height="29" alt="image" src="https://github.com/user-attachments/assets/14f2d8b8-98fe-4b05-a68f-c0aa64d55786" />
 
@@ -27,7 +27,9 @@ Pᥣᥱᥲsᥱ fᥱᥱᥣ frᥱᥱ to ᥣᥱᥲrᥒ morᥱ ᥲboᥙt mᥱ oᥒ m
 
 ᴀᴛᴀʙᴏᴏᴋ : https://thebeachchick16.atabook.org/
 
-Thank you for reading, goodbye now, darlings! 
+Sιgᥒ mყ trᥱᥱ!: https://decomytree.io/t/8AqhDB?invite=8AqhDB 
+
+𝗧𝗵𝗮𝗻𝗸 𝘆𝗼𝘂 𝗳𝗼𝗿 𝗿𝗲𝗮𝗱𝗶𝗻𝗴, 𝗴𝗼𝗼𝗱𝗯𝘆𝗲 𝗻𝗼𝘄, 𝗱𝗮𝗿𝗹𝗶𝗻𝗴𝘀! 
 
 <img width="544" height="277" alt="Screenshot 2026-10-31 at 6 22 36 PM" src="https://github.com/user-attachments/assets/a9d95b37-1fc9-49a7-a8ec-3ba7058a465e" />
 
