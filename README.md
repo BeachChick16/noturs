@@ -1,13 +1,38 @@
-𝙃𝙤𝙬𝙙𝙮 𝙝𝙤𝙬𝙙𝙮!! 𝙄'𝙢 𝙘𝙝𝙪𝙪, 𝙖𝙡𝙨𝙤 𝙠𝙣𝙤𝙬𝙣 𝙖𝙨 𝙃𝙖𝙡𝙤 𝙤 𝙍𝙤𝙪𝙜𝙚! 𝙄 𝙨𝙥𝙚𝙖𝙠 𝙗𝙤𝙩𝙝 𝙀𝙣𝙜/𝙀𝙨𝙥.
+<div align="center"><img width="544" height="277" alt="Screenshot 2026-10-31 at 6 22 42 PM" src="https://github.com/user-attachments/assets/2791bb48-2447-4add-a514-350b0bf4fe7e" />
 
-(𝘼𝙡𝙨𝙤, 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙪𝙨𝙚 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨 𝙮𝙤𝙪'𝙙 𝙡𝙞𝙠𝙚! 𝙄 𝙜𝙤 𝙗𝙮 𝘼𝙣𝙮/𝘼𝙡𝙡)
 
-𝘾+𝙃 𝙞𝙨 𝙤𝙗𝙫𝙞𝙤𝙪𝙨𝙡𝙮 𝙤𝙠𝙖𝙮 𝙬𝙞𝙩𝙝 𝙢𝙚!! 𝙄 𝙙𝙤 𝙣𝙤𝙩 𝙢𝙞𝙣𝙙 𝙞𝙩 𝙖𝙩 𝙖𝙡𝙡, 𝙨𝙤 𝙥𝙡𝙚𝙖𝙨𝙚 𝙛𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙖𝙡𝙬𝙖𝙮𝙨 𝙘𝙤𝙢𝙚 sit 𝙬𝙞𝙩𝙝 𝙢𝙚!!!
+Hoᥕdყ hoᥕdყ, mყ ᥣovᥱᥣιᥱs!!! Wᥱᥣᥴomᥱ to mყ Gιthᥙb ᥲᥒd/or Rᥱᥲdmᥱ!! I ᥲm Chᥙᥙ, I go bყ Hᥲᥣo o Roᥙgᥱ. I do ᥒot mιᥒd ᥲᥒყ tყρᥱ of ρroᥒoᥙᥒs ყoᥙ ᥙsᥱ oᥒ mᥱ, thᥲt's ᥕhყ I hᥲvᥱ "Aᥒყ/Aᥣᥣ" oᥒ mყ bιo! 
 
-𝙋𝙡𝙚𝙖𝙨𝙚 𝙠𝙚𝙚𝙥 𝙞𝙣 𝙢𝙞𝙣𝙙 𝙩𝙝𝙖𝙩 𝙄 𝙬𝙞𝙡𝙡 𝙪𝙨𝙚 𝙥𝙚𝙩𝙣𝙖𝙢𝙚𝙨 𝙬𝙝𝙚𝙣 𝙩𝙖𝙡𝙠𝙞𝙣𝙜 𝙩𝙤𝙬𝙖𝙧𝙙𝙨 𝙮𝙤𝙪, 𝙨𝙤 𝙞𝙛 𝙩𝙝𝙞𝙨 𝙢𝙖𝙠𝙚𝙨 𝙮𝙤𝙪 𝙛𝙚𝙚𝙡 𝙪𝙣𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙡𝙚𝙩 𝙢𝙚 𝙠𝙣𝙤𝙬!
+<img width="239" height="29" alt="image" src="https://github.com/user-attachments/assets/14f2d8b8-98fe-4b05-a68f-c0aa64d55786" />
 
-𝙄'𝙢 𝙪𝙨𝙪𝙖𝙡𝙡𝙮 𝙖 𝙫𝙚𝙧𝙮 𝙡𝙖𝙞𝙙 𝙗𝙖𝙘𝙠 𝙥𝙚𝙧𝙨𝙤𝙣, 𝙨𝙤 I 𝙙𝙤𝙣'𝙩 𝙢𝙞𝙣𝙙 𝙢𝙖𝙠𝙞𝙣𝙜 𝙣𝙚𝙬 𝙛𝙧𝙞𝙚𝙣𝙙𝙨! 𝙎𝙤 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙖𝙣𝙣𝙖 𝙗𝙚 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙟𝙪𝙨𝙩 𝙡𝙢𝙠! 
 
-𝙋𝙡𝙚𝙖𝙨𝙚 𝙘𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚! ♡ https://beachchick16.straw.page/
+"Bᥙt ᥕhᥲt doᥱs thᥲt mᥱᥲᥒ?" - Whᥱᥒ I sᥲყ ι go bყ Aᥒყ/Aᥣᥣ, I mᥱᥲᥒ I go bყ thᥱყ/thᥱm, shᥱ/hᥱr, Hᥱ/hιm, ιts/ιt! Thᥱrᥱ ιs ᥒo ᥕᥲყ ყoᥙ ᥴᥲᥒ mιsgᥱᥒdᥱr ᥴᥲᥒ, ᥣovᥱ! Bᥙt ιf ყoᥙ ᥕoᥙᥣd ᥣιkᥱ to kᥒoᥕ mყ "ρrᥱfᥱrrᥱd" ρroᥒoᥙᥒs thᥱᥒ go ᥲhᥱᥲd ᥲᥒd ᥲsk mᥱ, ι ᥕιᥣᥣ ᥲᥣᥕᥲყs bᥱ ᥕιᥣᥣιᥒg to tᥱᥣᥣ. ^^
 
-𝙉𝙤𝙩𝙚: 𝙀𝙣𝙜𝙡𝙞𝙨𝙝 𝙞𝙨 𝙣𝙤𝙩 𝙢𝙮 𝙛𝙞𝙧𝙨𝙩 𝙡𝙖𝙣𝙜𝙪𝙖𝙜𝙚, 𝙞'𝙢 𝙖𝙡𝙨𝙤 𝙫𝙚𝙧𝙮 𝙨𝙝𝙮 𝙬𝙝𝙚𝙣 𝙞𝙩 𝙘𝙤𝙢𝙚𝙨 𝙩𝙤 𝙩𝙖𝙡𝙠𝙞𝙣𝙜 𝙩𝙤 𝙣𝙚𝙬 𝙥𝙚𝙤𝙥𝙡𝙚 𝙩𝙤𝙤 𝙨𝙤𝙢𝙚𝙩𝙞𝙢𝙚𝙨.
+Pᥣᥱᥲsᥱ kᥱᥱρ ιᥒ mιᥒd thᥲt I ᥲm ᥲ MINOR. (16). So ᥲdᥙᥣts (18+) ᥲᥒd ᥴhιᥣdrᥱᥒ (13+ o ᥙᥒdᥱr), ρᥣᥱᥲsᥱ ρᥣᥱᥲsᥱ, ρᥣᥱᥲsᥱ ιᥕᥴ! I doᥒ't ᥕᥲᥒt ყoᥙ gᥙყs to gᥱt ᥙᥒᥴomfortᥲbᥣᥱ ᥕιth mყ ᥲgᥱ, or ι doᥒt ᥕᥲᥒt ιt to bᥱ thᥱ oρρosιtᥱ, soᥙᥒd good? 
+
+<img width="494" height="66" alt="image" src="https://github.com/user-attachments/assets/4aaa6784-3ce6-4547-8830-477975675bcf" />
+
+
+"Hoᥕ ᥴomᥱ ყoᥙ kᥱᥱρ ᥙsιᥒg ρᥱtᥒᥲmᥱs? Whყ do ყoᥙ ᥙsᥱ thᥱm?" Noᥕ, thᥱ rᥱᥲsoᥒ ᥕhყ I ᥙsᥱ ρᥱtᥒᥲmᥱs ιs bᥱᥴᥲᥙsᥱ ιt's ᥲᥣᥕᥲყs bᥱᥱᥒ somᥱthιᥒg ι'vᥱ doᥒᥱ! If ყoᥙ hᥲvᥱ bᥱᥱᥒ mყ frιᥱᥒd for ᥲ ᥣoᥒg tιmᥱ, I hᥲvᥱ stoρρᥱd ᥙsιᥒg thᥱm for ᥲ ᥣιttᥣᥱ ᥕhιᥣᥱ bᥙt I do ιt ιᥒ ordᥱr to mᥲkᥱ thᥱ ρᥱrsoᥒ I tᥲᥣk to fᥱᥱᥣ ᥴomfortᥲbᥣᥱ tᥲᥣkιᥒg to mᥱ! ιf thιs doᥱs mᥲkᥱ ყoᥙ ᥙᥒᥴomfortᥲbᥣᥱ ρᥣᥱᥲsᥱ ᥣᥱt mᥱ kᥒoᥕ, ιt's bᥱst ყoᥙ tᥱᥣᥣ mᥱ ιᥒstᥱᥲd of ᥒot doιᥒg so, thᥲᥒk ყᥱᥕ!! ♡ 
+
+Noᥕ ιf ყoᥙ ᥲrᥱ ᥕoᥒdᥱrιᥒg ᥲboᥙt C+H, I ᥲm totᥲᥣᥣყ fιᥒᥱ ᥕιth thᥲt!! Pᥣᥱᥲsᥱ, ᥴomᥱ sιt ᥕ/ mᥱ, I doᥒ't mιᥒd ιt ᥲt ᥲᥣᥣ! Notᥱ: I ᥲm ᥲᥣso vᥱrყ shყ ᥕhᥱᥒ ᥴomᥱs to tᥲᥣkιᥒg or hᥲvιᥒg to ιᥒtᥱrᥲᥴt ᥕhᥱᥒᥱvᥱr ρᥱoρᥣᥱ sιt ᥕιth mᥱ, bᥙt ιf ყoᥙ ᥕᥲᥒt to ιᥒtᥱrᥲᥴt ᥲᥒd/or bᥱᥴomᥱ frιᥱᥒds, ι do ᥒot mιᥒd ᥲt ᥲᥣᥣ hᥙᥒ! I ᥱᥒjoყ mᥲkιᥒg ᥒᥱᥕ frιᥱᥒds ^^
+
+Yoυ proвαвly ѕeeɴ мe αroυɴd тoo! I αм υѕυαlly, Sнαdow, ѕoɴιc, Jeт, or вυɴɴy!
+
+<img width="239" height="29" alt="image" src="https://github.com/user-attachments/assets/f0052a07-109b-47c9-94f2-2f40597dd825" />
+
+
+( ᴇɴɢʟɪsʜ ɪs ɴᴏᴛ ᴍʏ ғɪʀsᴛ ʟᴀɴɢᴜᴀɢᴇ, ɪᴛ ɪs ᴀᴄᴛᴜᴀʟʟʏ ᴍʏ 2ɴᴅ, sᴏ ɪ ᴀᴘᴏʟᴏɢɪᴢᴇ ɪғ ɪ ᴅᴏɴ'ᴛ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴏʀ ᴋɴᴏᴡ sᴏᴍᴇᴛʜɪɴɢ! )
+Pᥣᥱᥲsᥱ fᥱᥱᥣ frᥱᥱ to ᥣᥱᥲrᥒ morᥱ ᥲboᥙt mᥱ oᥒ mყ strᥲᥕρᥲgᥱ! ♡ https://beachchick16.straw.page/
+
+Thank you for reading, goodbye now, darlings! 
+
+<img width="544" height="277" alt="Screenshot 2026-10-31 at 6 22 36 PM" src="https://github.com/user-attachments/assets/a9d95b37-1fc9-49a7-a8ec-3ba7058a465e" />
+
+A̲̲r̲̲t̲̲(̲̲s̲̲)̲̲ b̲̲y̲̲:̲̲ m̲̲e̲̲r̲̲c̲̲u̲̲r̲̲i̲̲o̲̲-̲̲s̲̲h̲̲a̲̲d̲̲o̲̲w̲̲z̲̲ o̲̲n̲̲ t̲̲u̲̲m̲̲b̲̲l̲̲r̲̲!̲̲!̲̲
+
+
+
+<img width="239" height="49" alt="image" src="https://github.com/user-attachments/assets/02a2347a-764d-4d07-823c-f848dc81435d" />
+<img width="239" height="49" alt="image" src="https://github.com/user-attachments/assets/a041a2b1-8675-4788-ad74-1b5f3007ff4b" />
+<img width="239" height="49" alt="image" src="https://github.com/user-attachments/assets/8b9401e5-ea00-4ab0-bc1b-afa8cfb0f980" />
